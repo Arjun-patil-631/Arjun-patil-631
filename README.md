@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻  1st year AI/ML student at Sphoorthy Engineering College <br>🚀 Currently sharpening problem-solving skills and building real-world projects<br>🌱 Always learning, always improving
+💻  2nd year AI/ML student at Sphoorthy Engineering College <br>🚀 Currently sharpening problem-solving skills and building real-world projects<br>🌱 Always learning, always improving
 
 
 ## 🌐 Socials:
